@@ -1,0 +1,2 @@
+# my
+birinchi ishim
